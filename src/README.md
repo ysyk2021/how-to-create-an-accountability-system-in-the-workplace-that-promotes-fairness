@@ -15,4 +15,4 @@ In this book, you will learn about:
 
 Through practical examples and case studies, we illustrate how effective accountability can improve organizational performance and create a more engaged and motivated workforce. Whether you are a manager or an employee seeking to improve the workplace culture, this book offers insights and strategies for creating a fair and consistent accountability system that promotes excellence and fosters trust.
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
