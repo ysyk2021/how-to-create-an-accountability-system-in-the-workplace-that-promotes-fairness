@@ -1,5 +1,3 @@
-The Role of Performance Evaluation Systems in Accountability
-====================================================================================================================
 
 Performance evaluation systems play a critical role in promoting accountability in the workplace. In this chapter, we will explore the importance of performance evaluation systems in accountability and provide strategies for implementing effective performance evaluation systems.
 

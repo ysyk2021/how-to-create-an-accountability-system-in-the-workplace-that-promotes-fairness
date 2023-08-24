@@ -1,5 +1,3 @@
-Chapter 6: Creating Consequences and Rewards
-============================================
 
 Creating consequences and rewards is an important component of any accountability system in the workplace. In this chapter, we will explore the role of consequences and rewards in accountability, strategies for creating consequences and rewards that promote fairness and consistency, and the importance of using a consistent and transparent approach.
 

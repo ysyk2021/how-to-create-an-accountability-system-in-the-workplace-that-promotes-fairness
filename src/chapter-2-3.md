@@ -1,5 +1,3 @@
-Strategies for Promoting Accountability in the Workplace
-==================================================================================================================
 
 Understanding accountability in the workplace is essential for creating a system that promotes fairness and consistency among employees. In this chapter, we will explore strategies for promoting accountability in the workplace.
 

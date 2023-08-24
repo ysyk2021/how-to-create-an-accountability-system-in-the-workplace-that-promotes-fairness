@@ -1,5 +1,3 @@
-Leading with Integrity and Transparency
-================================================================================================
 
 Leading with integrity and transparency is essential for promoting accountability in the workplace. In this chapter, we will explore the importance of leading with integrity and transparency and provide strategies for developing these skills.
 

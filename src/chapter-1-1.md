@@ -1,5 +1,3 @@
-Importance of Creating an Accountability System in the Workplace
-=========================================================================================
 
 Creating an accountability system in the workplace is essential for promoting fairness and consistency among employees. In this chapter, we will explore the importance of creating an accountability system in the workplace.
 

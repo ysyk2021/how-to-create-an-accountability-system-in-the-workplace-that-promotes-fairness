@@ -1,5 +1,3 @@
-Strategies for Ensuring Compliance with Legal and Ethical Standards
-====================================================================================================================================
 
 Ensuring compliance with legal and ethical standards is essential for promoting accountability in the workplace. In this chapter, we will explore strategies for ensuring compliance with legal and ethical standards.
 

@@ -1,5 +1,3 @@
-Using 360-degree Feedback and Self-Assessment Methods
-=============================================================================================================
 
 Performance evaluation systems are essential for promoting accountability in the workplace. In this chapter, we will explore the use of 360-degree feedback and self-assessment methods as effective approaches to implementing performance evaluation systems.
 

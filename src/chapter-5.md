@@ -1,5 +1,3 @@
-Chapter 5: Encouraging Open Communication and Feedback
-======================================================
 
 Open communication and feedback are essential for promoting accountability in the workplace. In this chapter, we will explore the importance of open communication and feedback in accountability, strategies for encouraging open communication and feedback, and techniques for active listening and non-judgmental feedback.
 

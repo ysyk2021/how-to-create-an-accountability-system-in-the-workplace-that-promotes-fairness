@@ -1,5 +1,3 @@
-Adjusting Accountability Programs Based on Feedback
-================================================================================================
 
 Measuring the success of an accountability system is essential for ensuring that it remains effective and relevant. In this chapter, we will explore how to measure accountability success and adjust accountability programs based on feedback.
 

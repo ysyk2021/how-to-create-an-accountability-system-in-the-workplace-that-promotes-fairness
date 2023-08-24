@@ -1,5 +1,3 @@
-Strategies for Encouraging Open Communication and Feedback
-==================================================================================================================
 
 Encouraging open communication and feedback is essential for promoting accountability in the workplace. In this chapter, we will explore strategies for encouraging open communication and feedback.
 

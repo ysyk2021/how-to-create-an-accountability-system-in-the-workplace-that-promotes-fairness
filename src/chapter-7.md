@@ -1,5 +1,3 @@
-Chapter 7: Ensuring Compliance with Legal and Ethical Standards
-===============================================================
 
 Ensuring compliance with legal and ethical standards is an essential component of any accountability system in the workplace. In this chapter, we will explore the importance of compliance with legal and ethical standards in accountability, strategies for ensuring compliance, and the use of training and education programs.
 

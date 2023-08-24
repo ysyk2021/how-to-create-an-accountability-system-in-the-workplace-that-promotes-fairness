@@ -1,5 +1,3 @@
-The Role of Consequences and Rewards in Accountability
-====================================================================================================
 
 Creating consequences and rewards is essential for promoting accountability in the workplace. In this chapter, we will explore the role of consequences and rewards in accountability and provide strategies for creating effective consequences and rewards.
 

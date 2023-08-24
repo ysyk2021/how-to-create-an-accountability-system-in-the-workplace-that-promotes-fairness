@@ -1,5 +1,3 @@
-Using Active Listening and Non-Judgmental Feedback Techniques
-=====================================================================================================================
 
 Encouraging open communication and feedback is essential for promoting accountability in the workplace. In this chapter, we will explore the use of active listening and non-judgmental feedback techniques to encourage open communication and feedback.
 

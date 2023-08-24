@@ -1,5 +1,3 @@
-Using a Consistent and Transparent Approach
-=========================================================================================
 
 Creating consequences and rewards is an essential part of an accountability system in the workplace that promotes fairness and consistency among employees. In this chapter, we will explore how to create consequences and rewards using a consistent and transparent approach.
 

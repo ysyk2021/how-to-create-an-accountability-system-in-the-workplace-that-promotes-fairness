@@ -1,5 +1,3 @@
-The Benefits of Applying Accountability Skills to Leadership
-=====================================================================================================================
 
 Applying accountability skills to leadership can have a significant impact on the success of an organization. In this chapter, we will explore the benefits of applying accountability skills to leadership and provide strategies for developing these skills.
 

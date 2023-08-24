@@ -1,5 +1,3 @@
-Chapter 4: Implementing Performance Evaluation Systems
-======================================================
 
 Performance evaluation systems are an important component of any accountability system in the workplace. In this chapter, we will explore the role of performance evaluation systems in accountability, strategies for implementing effective performance evaluation systems, and the use of 360-degree feedback and self-assessment methods.
 

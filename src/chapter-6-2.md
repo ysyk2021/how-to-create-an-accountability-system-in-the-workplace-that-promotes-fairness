@@ -1,5 +1,3 @@
-Strategies for Creating Consequences and Rewards that Promote Fairness and Consistency
-====================================================================================================================================
 
 Creating consequences and rewards is essential for promoting accountability in the workplace. However, it is important to ensure that consequences and rewards are fair and consistent across individuals and teams. In this chapter, we will explore strategies for creating consequences and rewards that promote fairness and consistency.
 

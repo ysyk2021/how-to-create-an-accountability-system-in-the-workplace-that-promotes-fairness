@@ -1,5 +1,3 @@
-Methods for Measuring Accountability Success
-=========================================================================================
 
 Measuring accountability success is essential for ensuring that accountability systems are effective in promoting fairness and consistency in the workplace. In this chapter, we will explore methods for measuring accountability success.
 

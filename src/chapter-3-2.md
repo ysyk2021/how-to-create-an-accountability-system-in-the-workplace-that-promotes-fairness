@@ -1,5 +1,3 @@
-Strategies for Setting Clear Expectations and Goals
-=======================================================================================================
 
 Developing clear expectations and goals is essential for promoting accountability in the workplace. In this chapter, we will explore strategies for setting clear expectations and goals.
 

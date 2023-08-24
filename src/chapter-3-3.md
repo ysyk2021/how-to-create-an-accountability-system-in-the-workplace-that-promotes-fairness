@@ -1,5 +1,3 @@
-Using SMART Goal-Setting and Performance Metrics
-====================================================================================================
 
 Developing clear expectations and goals is essential for promoting accountability in the workplace. In this chapter, we will explore the use of SMART goal-setting and performance metrics as effective approaches to developing clear expectations and goals.
 

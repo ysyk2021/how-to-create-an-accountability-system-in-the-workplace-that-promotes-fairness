@@ -1,5 +1,3 @@
-The Importance of Open Communication and Feedback in Accountability
-===========================================================================================================================
 
 Open communication and feedback are essential for promoting accountability in the workplace. In this chapter, we will explore the importance of open communication and feedback in accountability and provide strategies for encouraging open communication and feedback.
 

@@ -1,5 +1,3 @@
-Using Training and Education Programs
-======================================================================================================
 
 Ensuring compliance with legal and ethical standards is essential for promoting accountability in the workplace. In this chapter, we will explore the use of training and education programs as effective approaches to ensuring compliance with legal and ethical standards.
 

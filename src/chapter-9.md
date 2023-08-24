@@ -1,5 +1,3 @@
-Chapter 9: Applying Accountability Skills to Leadership
-=======================================================
 
 Accountability is essential for creating a culture of trust, integrity, and high performance in the workplace. As a leader, applying accountability skills can help you become more effective in driving organizational success. In this chapter, we will explore the benefits of applying accountability skills to leadership, strategies for using accountability skills to become a better leader, and the importance of leading with integrity and transparency.
 

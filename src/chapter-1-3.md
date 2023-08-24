@@ -1,5 +1,3 @@
-Overview of the Book
-=============================================
 
 Accountability is essential for creating a workplace culture that values integrity, trust, and high performance. However, creating an effective accountability system that promotes fairness and consistency among employees can be challenging. In this book, we will explore strategies for creating an accountability system in the workplace that promotes fairness and consistency among employees.
 

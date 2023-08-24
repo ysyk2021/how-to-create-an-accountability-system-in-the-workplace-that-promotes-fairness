@@ -1,5 +1,3 @@
-Strategies for Using Accountability Skills to Become a Better Leader
-=============================================================================================================================
 
 Applying accountability skills to leadership can help individuals become better leaders and promote a culture of accountability in the workplace. In this chapter, we will explore strategies for using accountability skills to become a better leader.
 

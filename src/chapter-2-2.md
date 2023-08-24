@@ -1,5 +1,3 @@
-The Impact of Accountability on Personal and Professional Development
-===============================================================================================================================
 
 Understanding accountability in the workplace is essential for creating a system that promotes fairness and consistency among employees. In this chapter, we will explore the impact of accountability on personal and professional development.
 

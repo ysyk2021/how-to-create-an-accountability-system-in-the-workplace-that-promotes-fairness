@@ -1,5 +1,3 @@
-Chapter 3: Developing Clear Expectations and Goals
-==================================================
 
 Developing clear expectations and goals is a crucial component of any accountability system in the workplace. In this chapter, we will explore the importance of developing clear expectations and goals for accountability, strategies for setting clear expectations and goals, and the use of SMART goal-setting and performance metrics.
 
