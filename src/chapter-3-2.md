@@ -1,5 +1,4 @@
-Chapter: Strategies for Setting Clear Expectations and Goals
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Setting clear expectations and goals is essential for creating an accountability system that promotes fairness and consistency among employees. When expectations and goals are well-defined, individuals and teams can understand what is expected of them, align their efforts, and track their progress effectively. In this chapter, we will explore strategies for setting clear expectations and goals in the workplace.
 

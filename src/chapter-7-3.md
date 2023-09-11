@@ -1,5 +1,4 @@
-Chapter: Using Training and Education Programs
-==============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Training and education programs play a crucial role in creating an accountability system that promotes fairness and consistency among employees. These programs provide employees with the knowledge, skills, and resources they need to understand their roles, responsibilities, and expectations within the organization. In this chapter, we will explore the strategies for using training and education programs effectively.
 

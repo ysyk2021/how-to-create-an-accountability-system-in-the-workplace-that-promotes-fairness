@@ -1,5 +1,4 @@
-Chapter: Adjusting Accountability Programs Based on Feedback
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In creating an accountability system in the workplace that promotes fairness and consistency among employees, it is crucial to continuously adapt and adjust accountability programs based on feedback. Feedback plays a vital role in evaluating the effectiveness of existing programs, identifying areas for improvement, and ensuring that the system remains relevant and impactful. In this chapter, we will explore the importance of adjusting accountability programs based on feedback and discuss how it contributes to a culture of continuous improvement.
 

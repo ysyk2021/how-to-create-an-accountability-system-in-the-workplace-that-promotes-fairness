@@ -1,5 +1,4 @@
-Chapter: Using 360-Degree Feedback and Self-Assessment Methods
-==============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore how organizations can use 360-degree feedback and self-assessment methods to enhance their accountability system. These approaches provide valuable insights into employee performance and behavior, allowing organizations to foster a culture of continuous improvement while promoting fairness and consistency among employees.
 

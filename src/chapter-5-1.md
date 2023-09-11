@@ -1,5 +1,4 @@
-Chapter: The Importance of Open Communication and Feedback in Accountability
-============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Open communication and feedback play a vital role in creating an accountability system that promotes fairness and consistency among employees. Effective communication establishes trust, clarity, and understanding between individuals and teams, while feedback encourages continuous improvement and promotes shared ownership of goals and outcomes. In this chapter, we will explore the importance of open communication and feedback in accountability.
 

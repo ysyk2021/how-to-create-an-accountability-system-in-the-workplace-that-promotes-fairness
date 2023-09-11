@@ -1,5 +1,4 @@
-Chapter: Definition of Accountability in the Workplace
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the meaning of accountability in the workplace and its importance in promoting fairness and consistency among employees. Understanding the definition of accountability is essential in creating an effective accountability system that fosters a culture of responsibility and growth.
 

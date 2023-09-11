@@ -1,5 +1,4 @@
-Chapter: Methods for Measuring Accountability Success
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Measuring the success of an accountability system in promoting fairness and consistency among employees is crucial to assess its effectiveness and make informed improvements. By implementing appropriate measurement methods, leaders can evaluate the impact of the accountability system and determine if it aligns with organizational goals. In this chapter, we will explore various methods for measuring accountability success and discuss their significance in creating a transparent and equitable work environment.
 

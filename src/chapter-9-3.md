@@ -1,5 +1,4 @@
-Chapter: Leading with Integrity and Transparency
-================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Leading with integrity and transparency is a fundamental aspect of creating an accountability system that promotes fairness and consistency among employees. When leaders exhibit integrity and transparency, they establish trust, foster open communication, and uphold ethical standards within the workplace. In this chapter, we will explore the importance of leading with integrity and transparency and discuss how it contributes to a culture of accountability.
 

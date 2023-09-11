@@ -1,5 +1,4 @@
-Chapter: The Role of Consequences and Rewards in Accountability
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significant role that consequences and rewards play in creating an accountability system that promotes fairness and consistency among employees. By establishing clear consequences for poor performance and providing meaningful rewards for exceptional performance, organizations can foster a culture of accountability that drives individual and collective success.
 

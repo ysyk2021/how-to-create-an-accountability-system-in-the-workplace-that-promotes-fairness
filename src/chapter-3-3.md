@@ -1,5 +1,4 @@
-Chapter: Using SMART Goal-Setting and Performance Metrics
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Setting clear and measurable goals is essential for creating an accountability system that promotes fairness and consistency among employees. SMART goal-setting and performance metrics provide a framework for defining goals, tracking progress, and evaluating outcomes. In this chapter, we will explore the strategies for using SMART goal-setting and performance metrics effectively.
 

@@ -1,5 +1,4 @@
-Chapter: Using Active Listening and Non-Judgmental Feedback Techniques
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of active listening and non-judgmental feedback techniques in creating an accountability system that promotes fairness and consistency among employees. These communication strategies foster open dialogue, mutual understanding, and constructive feedback, leading to enhanced accountability and improved workplace relationships.
 

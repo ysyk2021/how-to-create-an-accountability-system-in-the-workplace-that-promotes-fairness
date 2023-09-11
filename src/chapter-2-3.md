@@ -1,5 +1,4 @@
-Chapter: Strategies for Promoting Accountability in the Workplace
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various strategies for promoting accountability in the workplace. These strategies are designed to create a culture of responsibility, fairness, and consistency among employees, ultimately leading to improved performance and organizational success.
 

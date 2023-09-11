@@ -1,5 +1,4 @@
-Chapter: The Benefits of Applying Accountability Skills to Leadership
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Applying accountability skills to leadership is crucial for creating a culture of fairness, consistency, and high performance in the workplace. When leaders prioritize accountability, they set the tone for the entire organization and inspire their teams to excel. In this chapter, we will explore the benefits of applying accountability skills to leadership and discuss how it positively impacts both leaders and their teams.
 

@@ -1,5 +1,4 @@
-Chapter: The Impact of Accountability on Personal and Professional Development
-==============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significant impact of accountability on personal and professional development. Accountability plays a crucial role in fostering growth, enhancing skills, and driving individual success within the workplace.
 

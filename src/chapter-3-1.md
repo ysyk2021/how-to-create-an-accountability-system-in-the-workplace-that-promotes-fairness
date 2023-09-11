@@ -1,5 +1,4 @@
-Chapter: The Importance of Developing Clear Expectations and Goals for Accountability
-=====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Clear expectations and goals are essential for developing an accountability system that promotes fairness and consistency among employees. Establishing clear expectations and goals creates a shared understanding of what is expected, defines success, and enables tracking progress. In this chapter, we will discuss the importance of developing clear expectations and goals for promoting accountability in the workplace.
 

@@ -1,5 +1,4 @@
-Chapter: Strategies for Encouraging Open Communication and Feedback
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective communication is essential for building an accountability system that promotes fairness and consistency among employees. One of the critical components of such a system is creating an environment where employees feel comfortable sharing their feedback, suggestions, and concerns. In this chapter, we will explore some strategies for encouraging open communication and feedback in the workplace.
 

@@ -1,5 +1,4 @@
-Chapter: The Importance of Compliance with Legal and Ethical Standards in Accountability
-========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of compliance with legal and ethical standards in creating an accountability system that promotes fairness and consistency among employees. Upholding these standards is crucial for maintaining a reputable and responsible organization. By adhering to legal requirements and ethical principles, businesses can ensure transparency, trust, and integrity within their accountability framework.
 
